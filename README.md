@@ -1,4 +1,4 @@
-_Всем привет!_ **Меня зовут _[Казакова Алина,](https://vk.com/flealina)мне 18 лет.** _До поступления в [Высшую Школу Экономики](https://www.hse.ru)_ **я жила и училась в городе** Иваново![Иваново](https://www.google.ru/url?sa=i&rct=j&q=&esrc=s&source=images&cd=&cad=rja&uact=8&ved=0ahUKEwiL3ofP4uvYAhXKlSwKHYYCCecQjRwIBw&url=https%3A%2F%2Fbestmaps.ru%2Fgoroda%2Fivanovo&psig=AOvVaw0ZOmHbknI4PfC01KztMXCA&ust=1516716983681962)
+_Всем привет!_ **Меня зовут _[Казакова Алина,](https://vk.com/flealina) мне 18 лет.** _До поступления в [Высшую Школу Экономики](https://www.hse.ru)_ **я жила и училась в городе** Иваново![Иваново](https://www.google.ru/url?sa=i&rct=j&q=&esrc=s&source=images&cd=&cad=rja&uact=8&ved=0ahUKEwiL3ofP4uvYAhXKlSwKHYYCCecQjRwIBw&url=https%3A%2F%2Fbestmaps.ru%2Fgoroda%2Fivanovo&psig=AOvVaw0ZOmHbknI4PfC01KztMXCA&ust=1516716983681962)
 ### После _окончания_ *школы* и ***успешной сдачи*** [Единого Государственного Экзамена](http://ege.edu.ru/ru/) _я долго думала, куда поступать._ Список *хороших вузов* в нашей стране оказался _огромным!_
 _Я решила составить топ-5_ интересующих ***меня университетов:***
 ### 1.[РУДН](http://www.rudn.ru/) 
